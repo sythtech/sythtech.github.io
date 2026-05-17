@@ -1,1 +1,0 @@
-# sythstech.github.io
